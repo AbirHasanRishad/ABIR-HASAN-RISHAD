@@ -1,2 +1,2 @@
-# ABIR-HASAN-RISHAD
+# RISHAD
 This page made by Rishad
